@@ -1,5 +1,7 @@
 # Pattern of Life (undecided title)
+
 A book about my observations and discoveries
+
 It is unfinished, but I am nervous that if I don't share what I know, it may become lost.
 
 By Alex Hanson-White
